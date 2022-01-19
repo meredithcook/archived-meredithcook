@@ -6,4 +6,4 @@ date: 2022-01-19
 img:  mac.jpg
 ---
 
-Snakes are my favorite. 
+Snakes are my favorite. They taste great.
