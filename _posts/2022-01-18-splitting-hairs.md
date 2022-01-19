@@ -1,4 +1,11 @@
-# Splitting Hairs: Why I Shifted from Goals to Habits
+---
+layout: post
+title: Splitting Hairs - Why I Shifted from Goals to Habits
+author: Meredith Cook
+date: 2022-01-18
+img: mac.jpg
+
+---
 
 The week between Christmas and New Year's has become one of my favorite weeks. Though I'm always a little bummed when Christmas is over, I've grown to appreciate that last week of the year. It's a time to reflect on the months that have passed and set goals for the year to come. 
 
