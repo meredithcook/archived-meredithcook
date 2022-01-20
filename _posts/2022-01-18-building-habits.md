@@ -27,7 +27,7 @@ While goals and habits often go hand-in-hand, building good and healthy habits c
 
 ## Some Habits I'm Working On
 
-At the end of 2021, I spent some time determining what habits I want to focus on this year. I downloaded a habit tracking app and each day I mark if I did the habit or not. If not, I don't get discouraged. I just try to do the thing the next day. And once I see that I've done the thing several days in a row, I'm motivated not to break the chain. Habits are also buildable—once a pattern becomes default, it doesn't feel like a lot to add on another.
+At the end of 2021, I spent some time determining what habits I want to focus on this year. I downloaded a habit tracking app and each day I mark if I did the habit or not. If not, I don't get discouraged. I just try to do the thing the next day. And once I see that I've done the thing several days in a row, I don't want to break the chain. It's actually kind of ridiculous how motivated I feel to do a habit simply to be able to check it off at the end of the day. Habits are also buildable—once a pattern becomes default, it doesn't feel like a lot to add on another.
 
 I fell out of a lot of my routines at the end of last year. We moved halfway across the country and the holidays came immediately afterwards. As I try to reset and develop good rhythms, these are some habits I am working to make, well, habitual:
 
