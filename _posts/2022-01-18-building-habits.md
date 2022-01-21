@@ -20,7 +20,7 @@ Reading *The Power of Habit* last year jump started a shift in the way I set goa
 
 ## Shifting Focus
 
-In another book of the same subject, [*Atomic Habits*](https://amzn.to/3rkmsGM), James Clear talks a bit about the difference between habits (what he calls "systems") and goals. You can [read an excerpt](https://jamesclear.com/goals-systems) from it on his website, where he explains why you should shift your focus from goal setting to designing systems to follow daily. (Disclaimer: though I have heard good things about it, I have not yet read Clear's book.)
+In another book of the same subject, [*Atomic Habits*](https://amzn.to/3rkmsGM), James Clear talks a bit about the difference between habits (what he calls "systems") and goals. You can [read an excerpt] (https://jamesclear.com/goals-systems) from it on his website, where he explains why you should shift your focus from goal setting to designing systems to follow daily. (Disclaimer: though I have heard good things about it, I have not yet read Clear's book.)
 
 Encouraged by Duhigg and Clear's explanation of habit building, I shifted my focus from setting "goals" to building "habits." It has made a huge difference in how I use my time. 
 
