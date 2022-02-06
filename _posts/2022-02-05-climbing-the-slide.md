@@ -61,4 +61,3 @@ Changing my habits was the first step. It's a work in progress, a daily choice. 
 But when I was afraid I couldn't change, the One who never changes (because He doesn't have to) has been faithful to do a work in my heart that has led to more joy, hope, and peace in Him.  
 
 <sub>Photo by <a href="https://unsplash.com/@dbruyter?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Daniel Ruyter</a> on <a href="https://unsplash.com/s/photos/spiral-slide?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Unsplash</a></sub>
-  
