@@ -46,3 +46,5 @@ The way we relate to one another demonstrates whether or not we actually believe
 Like the church in Acts 2, let's devote ourselves to the apostles' teaching and to fellowship, breaking of bread, and prayers. It is hard to be divided when we are listening to the same message being preached, spending time with one another, sharing meals, and praying together. And when we do so, we can faithfully proclaim to the world the truth of the gospel. The gospel empowers us to love one another the way the Bible tells us to and it unites us under one mission: the Great Commission.
 
 I know—because Scripture is clear—that I cannot  rely on man as the source of my hope or the determiner of my confidence in the gospel. Let this be a reminder that our "hope is built on nothing less, than Jesus's blood and righteousness." I certainly need the reminder, and perhaps you do, too. The gospel is sufficient for life and godliness. I believe it can truly unite us, if we will only allow it.
+
+<sub>Photo by Jed Villejo on Unsplash</sub>
